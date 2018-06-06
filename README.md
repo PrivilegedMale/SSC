@@ -1,0 +1,2 @@
+# SSC
+school, stuff HEHE
